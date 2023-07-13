@@ -1,52 +1,30 @@
 建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
-亲爱的朋友们好，由于大陆经常封闭色情百科域名，所以请记住我们永久最新地址邮箱哦。
+亲爱的朋友们好，由于大陆经常封闭网曝虾域名，所以请记住我们永久最新地址邮箱哦。
 目前最新域名如下： 
 
 2023年3月12日新增大陆名称三个如下：
 重点告知，专为中国大陆优化，速度超快
-https://pkbaike.com/
+https://网曝虾.com/
 -------------------------------------------
-https://bke.lol
+-------------------------------------------
 
+官方app下载地址，无法打开使用VPN即可正常打开
 
-https://bk88.lol 
-
-
-https://bk99.lol 
-
-2022年11月15日更新
-新增大陆域名：
-https://8877.one/
-
-https://5588.one/
-
-新增中文域名：色情百科.COM（直接浏览器输入打开即可）
-
-https://pornbaike.com 
-
-永久官方主域名，无法打开使用VPN即可正常打开
-
-https://baike.buzz/
-
-https://pornbk.xyz
+https://wbxapp.cc
 
 推荐免费翻墙软件： https://ant.aff008.shop/c-1138/a-aQsSQ
 
 如遇见都无法打开
 
-请关注我们官方推特账号：https://twitter.com/pornbaike
-
 色情百科官方TG频道：https://t.me/pornbaike
 
-永久发布页地址：https://github.com/pornbaike/baikedizhi （务必收藏，每次更新新的地址都在这里）
+永久发布页地址：https://网曝虾.com （务必收藏，每次更新新的地址都在这里）
 
-回家的路邮箱找回：如果以上地址均不可用，索取最新地址,请发邮件到 pornbkdz@gmail.com 内容随意！
-
-发布页地址二：https://pornbk.neocities.org/
+回家的路邮箱找回：如果以上地址均不可用，索取最新地址,请发邮件到 mowangvip@gmail.com 内容随意！
 
 常见问题
 
-第一种办法： 访问正确的网址,网址前面加入https://，解决运营商域名劫持： 正确访问：https://pornbaike.com 错误访问(http没加s)：http://pornbaike.com
+第一种办法： 访问正确的网址,网址前面加入https://，解决运营商域名劫持： 正确访问：https://wbxapp.cc 错误访问(http没加s)：http://wbxapp.cc
 
 第二种办法： 修改DNS 防止无法播放 以及 无法访问 等问题
 PC端如何使用百度DNS教程 – http://dudns.baidu.com/support/localdns/PC/
