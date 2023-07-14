@@ -12,7 +12,7 @@ https://网曝虾.com/
 
 https://wbxapp.cc
 
-网页端最新域名！
+网页端最新域名：
 
 https://wbxia.xyz
 
