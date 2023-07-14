@@ -16,7 +16,7 @@ https://wbxapp.cc
 
 如遇见都无法打开
 
-色情百科官方TG频道：https://t.me/pornbaike
+网曝虾官方TG频道：https://t.me/wangbaoxia
 
 永久发布页地址：https://网曝虾.com （务必收藏，每次更新新的地址都在这里）
 
