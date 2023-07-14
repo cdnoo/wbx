@@ -12,6 +12,10 @@ https://网曝虾.com/
 
 https://wbxapp.cc
 
+网页端最新域名！
+
+https://wbxia.xyz
+
 推荐免费翻墙软件： https://ant.aff008.shop/c-1138/a-aQsSQ
 
 如遇见都无法打开
